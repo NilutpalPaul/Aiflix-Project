@@ -113,6 +113,8 @@
 7. Marketing and Promotion:
 
 -> Engage in marketing efforts to attract both content creators and viewers to the platform.
+
 -> Leverage social media, online advertisements, and collaborations with influencers to promote AiFlix and its movies.
+
 -> Consider partnerships with film festivals or other industry events to showcase selected movies.
 
